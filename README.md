@@ -1,3 +1,3 @@
 # mobilegrabber
 
-![alt tag](http://imgur.com/wk2sV73)
+![alt tag](http://i.imgur.com/wk2sV73.jpg)
